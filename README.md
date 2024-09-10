@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hanieeee11
 - 👀 I’m interested in Anime, Manga and Programming
-- 🌱 I’m currently learning how to proram in java
+- 🌱 I’m currently learning how to program in java
 - 💞️ I’m looking forward to experiencing new things and learn more to improve my skills
 - 📫 How to reach me? I've pasted my ig and fb accounts on my profile
 - 😄 Pronouns: she/they
